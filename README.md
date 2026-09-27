@@ -1,2 +1,2 @@
-# Gacha-Archive-Animations
+# Unused free stuff on the internet :)
 Animation storage
